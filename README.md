@@ -27,3 +27,5 @@ An Archive for the HIMEHINA Subtitles I've completed!!
 * [Cherry Pop](https://youtu.be/rPmEkJfEyXY?si) - Translation by Tamanegi-P with amendments by ilovesteak32
 * [Monitoring](https://youtu.be/rPmEkJfEyXY?si) - Translation by Iori Majima (guy that translates DECO *27)
   
+### Other Videos
+* [[nope'd] Tried drawing Pokemon based on their names only... Gave birth to new cryptids LOL](https://www.youtube.com/watch?v=WUdMoh7Bbu8) - Translated by Hayashi 
