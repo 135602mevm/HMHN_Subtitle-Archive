@@ -28,4 +28,4 @@ An Archive for the HIMEHINA Subtitles I've completed!!
 * [Monitoring](https://youtu.be/rPmEkJfEyXY?si) - Translation by Iori Majima (guy that translates DECO *27)
   
 ### Other Videos
-* [[nope'd] Tried drawing Pokemon based on their names only... Gave birth to new cryptids LOL](https://www.youtube.com/watch?v=WUdMoh7Bbu8) - Translated by Hayashi 
+* [Tried drawing Pokemon based on their names only...](https://www.youtube.com/watch?v=WUdMoh7Bbu8) - Translated by Hayashi 
